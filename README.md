@@ -1,0 +1,408 @@
+# Radha-Thambiraja-2
+
+## Needling Techniques
+- Thin Needle
+	- Thin-skin areas: face, palm & feet
+	- Used for tonification
+	- Used in cosmetic treatments & skin ailments - acne, cellulites etc
+- Thick Needle
+	- Thick-skin areas: body, arms & legs
+	- Used for Sedation
+	- Thick needle with metal handle are used for therapies like moxa
+	- Used in Moxa with a piece attached to the handle
+	- Used in Electrical Stimulation
+- Needle Material
+	- White Metal
+		- Good for Cooling & Calming
+		- Improves Yin & Calms Yang
+	- Yellow Metal
+		- More Stimulating & Activating
+		- Tonifies Yang & Improves flow of Yin
+	- Balanced Needle
+		- Stainless Steel needle with Copper Handle with both white & yellow colors
+- Holding the Needle
+	- Hold three fingers thumb, index & middle
+	- Place index, middle in handle and thumb in middle of needle or at chaft
+	- Diameter of Points are usually 1mm to 3cm
+	- In Winter season, due Yang Deficiency points descend internally and difficult to find accurately
+	- In Summer, due to Yang Excess conditions, points reach surface and easy to find
+- Needle Sensation
+	- There should be below sensation around needle area
+		- Dull ache around the point
+		- Conduction along a line
+		- Heaviness in limb or this area
+		- A tension in this area
+		- Pins & Needles
+	- Patient experience any of the above sensation, it means energy or QI has arrived to heal the area
+- Tonification
+	- After inserting needle, mild manipulation is done
+		– small degree of lifting, thrusting twisting and twirling to produce needle sensation
+	- Needle direction: 
+		- in the direction of meridian flow, twirling with thumb first towards centre, then away (centre of body or midline)
+	- Quick thrust and slow lifting
+	- The handle is scraped along the body
+	- The needle is retained for 20–60 minutes; longer in
+	elderly patients and in chronic disease
+	- - The needle is removed during inhalation
+	- The needle hole is closed
+	- Moxibustion is used for tonification of Yang. This is
+	used in cold diseases of local areas or on Mu-front
+	or back-Shu points in organ diseases
+	- Acupuncture, or point injection therapy, is used to prolong and increase point stimulation; it therefore increases energy. This is used in chronic conditions where there are severe deficiencies
+
+- Sedation
+	- After inserting needle, strong manipulation is done 
+		– large degree of lifting, thrusting, twisting and twirling to produce needle sensation
+	- Needle direction: 
+		- against the direction of meridian flow, twirling thumb first away from centre, then towards the centre
+	- Quick lifting and slow thrust
+	- The handle is scraped away from body
+	- The needle is retained for 5–30 minutes; shorter in acute states
+	- The needle is removed during exhalation
+	- The needle hole is left open
+	- Blood-letting is used as elimination of heat and to release blood
+	stagnation. To release heat, this method is used on Jing-well points (end or start points of meridians on the fingers or toes), or back-Shu points, or areas of venous bleeding and sometimes on local muscle pain areas
+	- Vibration technique is used for constant agitation of the needle, and
+	is an excellent method for dispersing energy
+- Tonifiying a point will bring blood & energy to the location
+- Sedating a point will disperse blood & energy from the location
+
+## Wind Symptoms
+- Wind Elimination Points
+	- Gb20 - head & face
+	- SI12 - Shoulder & arm
+	- UB12 - back, lung & skin
+	- GB31 - hip & legs
+	- Ba feng - eight wind points of feet (Liv2, St44, GB43)
+	- Ba Xie - eight points to remove harmful energy from hands
+	- 
+- Wind-cold symptoms
+	- Runny or blocked nose, mucus is white
+	- Head feels cold, patient wishes to cover it
+	- Less thirst, preference for hot drinks
+	- Urine and stool are lighter than usual for the patient
+	- Tongue has a white coating
+	- Tongue colour does not change in exterior symptoms
+	- Pulse is superficial (exterior), wiry (wind) in character and slow (cold)
+	- Need wind-elimination tonification technique
+- Wind-heat symptoms
+	- Sneezing or painful sinuses, mucus is coloured or with blood
+	- Head feels hot, patient wants to have fresh air (the body may feel cold)
+	- More thirst, preference to cool drinks
+	- Urine and stool are darker than usual for the patient
+	- Tongue has a yellow coating
+	- Tongue colour does not change, only the coating changes
+	- Pulse is superficial, wiry and fast (heat)
+	- Need wind-elimination sedation technique
+
+## Heat Elimination Techniques
+- Needling Method
+	- Insert Needle 3 levels depth 3 times and thrust once like this 6 times to be done
+- Bleeding
+	- Bleeding few drops of blood on meridian, back-shu points of organ are prefered
+	- If heat is in superficial area of organ system, bleeding on finger or toe points is preferred
+	- If heat is on deeper in the organ system, back-shu points are better to eliminate heat
+- Venous Bleeding
+	- Can be performed on the sedation points near vein
+	- E.g. Lu5 is excellent for uricartia
+
+## Sp6 Descending Needling Technique
+- Kidney Yin Deficiency with Ascending Fire-Heat
+	- Causes Lower Warmer Weak and Cold, the middle warmer fullness and Damp-heat rises to upper warmer leads to High Blood Pressure, Hot Flushes, Sweating etc
+	- Excess Fats in belly Dampness & Alcohol rise up Heat -> result in Damp-Heat
+- Contra Indications of Sp6 Descending Technique
+	- Can bring down heart rate in one minute
+	- Can bring down Blood Pressure in 10 mins
+- Technique
+	- Insert Needle Bilaterally (both legs)
+	- Thumb first upwards & then Downwards - Women
+	- Thumb first Downwards & Upwards - Men
+	- Push the needle as deep till the fibla reaches
+	- Thumb Needle Downwards & Upwards for both men & women
+
+## Energy Balancing on Left & Right Side
+- Muscle Tension
+	- Left Yang Excess & Right Yang Deficient
+		- Left GB40 Sedation & Right GB37 Tonification and keep for 30 minutes
+## Extraordinary Therapies
+- Moxibustion
+	- Direct Moxa
+		- Place Moxa piece on a point and lit it
+	- Indirect Moxa
+		- Ginger Moxa burns ginger or garlic pieces creates moxa effect
+		- Used for Cold diseases of organs on back-shu points
+		- On local areas of cold or damp skin disorders
+		- DU meridian snake moxa for weak back
+	- Moxa Cigar
+		- Should not kept at a point for long time and it should always be moved around in circles else it will burn skin or deep penetrate in body
+	- Hot Needle
+		- Lit Moxa piece per long needle which will deeply penetrate
+
+## Cupping Therapy
+- Used in
+	- Yin Stagnation in organs and applied on Back-shu Points
+	- Pressure Pains - used locally
+	- Bursas - Used locally
+	- Local Dampness
+	- Starting Pains that take long time to improve
+	- Back Ache, Shoulder Pain
+	- Osteoarthiritis of knee joint
+	- Cough with excessive phlegm - on backshu lung
+	- Urine Retention unstability - on backshu ub
+- Methods
+	- Retain Cup
+	- Intermittent Cup
+	- Moving Cup
+	- Bleeding Cup - Can be placed after removing local needles and retaining distal or influenctial and other needles gives excellent result
+- Bleeding Cup
+	- Used to remove blood stagnation in an area
+	- Eliminate heat from the area or organ
+- Contra Indication
+	- Patient with Anticoagulation
+Plum-Blossom Needle Tapping Therapy
+- Hammer with multiple needles appear like a plum tree petals
+- Can be used to tap on the superficial layer of skin to increase blood in cutaneous regions
+- Local Light Tapping
+	- can be used to increase blood and energy flow on the area
+	- Local Numbness
+	- On Virtigo
+	- Around Eyes in children for short sightness
+	- Para-Vertebral area 1 cun lateral from midline to stimulate internal organs
+- Heavy Tapping
+	- Can be used to bleed the skin and to release heat in organs
+	- Neuro-dermitis to bleed blood to release wind heat
+	- Psoriasis with itching & bleeding will let the harmful pathogenic yang out
+	- Hair loss areas - Plum Blossom bleeding should be done for 14 days of treatment. As the first hair grows, it should be stopped and use electrical stimulation
+
+## Electrical Stimulation
+- Can be attached to the needles with small wires
+- Has Slow and Rapid frequency
+- Has 3 frequencies
+	- Frequency with equal peaks
+		- Slow
+			- is similar to manual agitation stimulation
+		, Rapid
+			- Used in surgery for Analgesia
+		- Very Rapid (Faster)
+			- Used for Better Pain Relief
+	- Continous Frequency
+		- Slow is used for musculo-skeletal pains
+		- Very effective for hot pains - where pains worsen on activity
+		- Painless child birth on UB32
+	- Intermittent Frequency
+		- helps in Paralysis like facial and other
+	- Dense-Disperse Frequency
+		- Frequency with continuous and intermittent strategy which doesn't make patient to adapted for the stimulation
+		- Useful for Pain Relief Therapy like childbirth, surgery	
+
+## Fire Element
+- Heart & Small Intestine (Yin & Yang)
+- Heart governs the quickness to learn & understand
+- Heart Yin & Blood help to store & remember information
+- Heart Circulates Blood & Heat
+- Nourishes Blood & Blood Vessels
+- Synthesize Red Blood
+- Governs Speech
+	- Good QI will speak excellently and communicate well with anyone with or without knowledge of language
+	- Expression is Yang & Content is Yin
+- Heart Secrets Sweat depends on climate
+	- If temperature is high, secrets sweat to cool the body
+- Heart Opens the tongue
+	- Protrusion of tongue shows the character of person
+		- Strong - Extroverted
+		- Mild - Shy & Introverted
+	- Front of tongue is an upper warmer and shows the state of blood, energy & fluid in heart
+- Heart Houses & Governs
+	- Mind
+	- Mental Activity
+	- Sleep
+	- Creativity
+	- Memory
+	- Concentration
+- Diagnosis
+	- Low Yin & QI
+		- Stammering tongue and increases in nervous situations
+	- High Heart QI
+		- Highly integlligent
+		- Highly Creative, Extroverted, Confident
+	- Low Heart QI
+		- Mentally Retarded, Dull
+		- Low Creativity, Introverted, Lacks Confidence
+	- Good QI
+		- Good Concentration
+	- Low Blood
+		- Short-term Concentration
+	- Low QI & Blood
+		- Poor Concentration
+		- Liver Blood Deficiency
+			- Causes Low BP, Anaemia etc.
+	- Low Heart Blood
+		- Low Short-term Memory
+	- Low Kidney Yin
+		- Low Long-term Memory
+	- High Yang
+		- Acute Insomia, Hot, excited
+	- High Yang & Low Blood & Yin 
+		- Chronic Insomia, Hot, excited
+	- Low Yin, Yang & Blood
+		- Chronic Insomia, cold, excited
+	- High Yin, Low QI
+		- Hypersomia
+	- High Yang
+		- Excessive Heat in whole body, thorax, face & hands
+	- Low Yang
+		- Cold in Body, thorax & hands
+	- High Yang & Yin
+		- Excessive Heat & Sweating
+	- High Yang & Low Yin
+		- Excessive Heat & Concentrated sweat
+	- Low Yin, Yang & Lung QI (Leakage)
+		- Cold in body but excessive sweating
+
+## Earth Element
+- Stomach Receives & digests food & drinks
+- Absorbs & distribute nutrients
+- Nourishes muscles & fat
+- Circulates Blood & Fluids
+- Tones Connective Tissue
+- Spleen & Stomach open up to mouth & lips
+- Secrets Saliva
+- Collects blood from heart QI and circulates to pheripherally through Spleen QI
+- Responsible for Capillary blood circulation
+- Stomach
+	- Hunger, Appetite, thirst
+	- How often person feels hungry and long can tolerate hunger based on stomach activity
+	- There are muscles on the stomach wall which will initiate peristallic movement to make stomach smaller and tend to feel comfortable with small quantity
+	- If muscles are poor, person tend to eat a lot and not feel satisfied
+	- Connective Tissues are nourished by Spleen Blood and Yin and firmed by Spleen QI
+- Stomach QI
+	- Digestion of food
+	- If rapid, empties stomach fast and feels hunger often
+	- If poor, emptying time is long and feels fullness for long time
+- Spleen QI
+	- Absorption of nutrients in spleen and send to kidney to make bone marrow which will be sent to lungs and then heart to synthesize blood
+	- Malabsorption of nutrients of spleen QI will lead to blood deficiency
+	- Has to take up capillary circulation of blood
+- Spleen QI Deficient Causes Yang Deficient
+	- Capillary circulation of blood is affected and will not nourish pheriphery of extremeties leads numbness in hands, feet, ears and nose
+	- Poor healing of wounds
+	- Causes Numbness on hands, feet, ears & nose due to poor circulation
+- Spleen Yang Deficient with QI Deficient
+	- Poor Fluid Circulation wil lead to numbness and QI movement will stop when sleeping or rest, will improve as doing activity with Yang of day
+- Yin Deficient
+	- Empty Stomach lead to Weak, Low BP, Shaky hands or body, headache
+- Yang Rises with Yin Falls
+	- Burning pain, hyperacidity causes anger with hunger
+	- Feels hunger often and empties stomach fast
+- Stomach QI Deficient
+	- Long time to empty stomach and feels full for long time
+- Yin Excess
+	- Excess Saliva Secrets
+- Yin Deficient
+	- Thick Saliva or Dry mouth
+- Abdominal Pain
+	- Yin Dominant
+		- Consistent worsen on nights or after eating food or when take rest, improves with activity
+	- Yang Dominant
+		- Intermittent, severe worse when hungry and with coffee, improves with blend food and worse in day
+
+## Wood Element
+- Liver Stores & Releases Blood
+- Liver Secrets Bile
+- Generates Interior Wind
+	- Body consumes exterior wind to move energy in our body in closed environments and if not moved feels stiffy
+	- Energy, blood and body fluids depend on the interior wind to move smoothly in the body
+	- Liver QI generates this wind if not available in environment
+- Controls Muscle Stamina, Strength & Tension
+- Nourish & control Tendons
+- Opens to Eyes
+- Secretion of Tears
+- Yin
+	- Stores Blood in vessels & Body
+	- Secrets Bile
+	- Endurance or Stamina of muscles
+	- Tiredlessly do heavy works for long time
+	- Relax Muscles
+	- Mobility and suppleness of our joints
+	- Blood Nourishes the nail with Nutrition & Strength
+- Yang
+	- Releases the blood to other parts of body when energy needed
+	- Releases blood out of body when bleeding
+	- Releases Bile
+	- Governs Muscle Strength & Tension
+	- Strength of liver depends on Yang of liver
+	- Firmness of Tendons
+	- Shine & Speed of growth of nail
+- Yin Deficiency
+	- Less Capacity to store blood in vessels as a result person keeps on bleeding on injury
+	- Upon Needle Removed, bleeding will not stop for few mins
+	- Delays Blood Coagulation
+	- Bloating Upper Addomen
+	- Trouble digesting milk, fatty foods and more wind when ate them
+	- Yellowish-Green Stools
+	- Tired of doing heavy tasks easily and can't do for long time
+	- Stiffy and creaky Joints
+	- Iris Muscle failed to expand and contracted
+	- Dryness in Eyes and tears will not secreet (lacrination) (Possible Kidney Yin Deficiency)
+	- Nails become dry, ridged & split easy
+	- Will not anger and become introverted
+- Liver Blood Deficiency
+	- Paleness, Dizziness, tiredness, numbness of hands & legs, long menstrual cycle
+- Yang Exces
+	- Spontaneous Bleeding
+	- Blood releases and doesn't stop
+	- Jaundice, Itchy Skin, Nausea
+	- High Muscle Tension
+	- Tense Everywhere and very angry
+	- Tendons become hard, contracted and shortened
+	- Frequent inflamation in nails
+	- Get angry easily and tensed always
+- Liver Fire-heat (Yin Def & Yang Exc)
+	- Release too much blood and store less
+	- - Excessive & spontaneous Bleeding in any organ is a result of Disfunction of liver
+	- Results of Fire-heat condition in other organs may cause bleeding
+- Balancing Yang Excess
+	- Body tries to react with fluid to reduce Heat or Yang
+	- If no fluid (Yin Def), there is dryness and not enough fluid to react hence elimination of heat is only way to cool the body
+	- Quickest way to release heat is by bleeding and it is not slow or spotting but excess and spontaneous results in arterial bleeding
+- Liver Qi Deficiency
+	- Liver Blood Stagnation
+	- Energy, blood or body fluids stagnate in various parts of the body
+	- Energy blocks
+		- Frog in throat, fullness in upper abdomen
+	- Fluid blocks
+		- hydrocele
+	- Blood blocks
+		- Varicose vein
+	- Problems with Release of blood
+	- If Liver QI is deficient, blood will clot and doesn't release when it is necessary
+	- On Menstruation, it doesn't release blood on the first day and gives severe pain with clotty dark blood
+	- Symptoms greatly improve on 2nd & 3rd days
+	- As liver doesn't release the blood readily, it creates severe pain when uterus contracts cervix and creates cramps in uterus
+	- Muscles are Weak & flacid, Low blood pressure, can't do heavy tasks require muscle strength
+	- Tendons become soft & weak 
+	- Poor Function of Eyes Muscles that operate lenses
+	- Causes Long & short sightedness
+	- Long-sight
+		- Yin Excess & Yang Deficient
+	- Short-sight
+		- Yang Deficient
+	- Unable to adapt quickly from bright light to dark light conditions and takes long time to adjust
+	- Excessive Secretion of tears
+- Wind Symptoms
+	- Wind Rise
+		- Stress, alcohol, Eyestrain under artificial light, working in interior under bright lights for long hours
+		- Blood Deficiency
+		- Liver Yang Excess
+	- Less WInd
+		- Causes Stagnations & Blocks
+	- Excess Wind
+		- Excess Movement & Irritation
+		- Wandering symptoms
+			- dermatitis, rheumatism
+		- Irritation symptoms
+			- sneezing, itching, tinnitus, photophobia
+		- Paroxysmal symptoms
+			- epileptic fits, colic or paroxysmal pain
+		- Wind block symptoms
+			- hemiplegia, facial paralysis, stiff neck
